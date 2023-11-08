@@ -1,4 +1,4 @@
-Alibaba is the world's largest B2B e-commerce company, connecting millions of buyers and sellers globally. Seeing the immense scope, Zipprr provides a fully-featured <a href="https://zipprr.com/category/alibaba-clone/">Alibaba clone script</a>.
+Alibaba is the world's largest B2B e-commerce company, connecting millions of buyers and sellers globally. Seeing the immense scope, Zipprr provides a fully-featured <a href="https://zipprr.com/alibaba-clone/">Alibaba clone script</a>.
 
 <h2><b>Advanced Features in Our Alibaba Clone Solution</b></h2>
 
